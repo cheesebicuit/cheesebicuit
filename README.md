@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @cheesebicuit
-- 👀 I’m interested in coding and game development
+- 👀 I’m interested in coding
 - 🌱 I’m currently learning a lot of languages
 - 💞️ I’m looking to collaborate on anything really
 - 📫 How to reach me add me on discord @cheese_biscuit
